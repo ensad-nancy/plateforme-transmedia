@@ -26,9 +26,10 @@ Récolte, référence
   
 
 ## LE PROCÈS
-  1. torrent.dowload.dmg.imagedisk.piratebay.
+  1. torrent.dowload.dmg.imagedisk.piratebay.zip
       charte du site...pas de bêtises les potos
   2. site web ou rien n'est atteignable, image impossible à copier.coller! ahaha saltimbanque. 
+  3. rédaction d'une mailist pirate pour envoyer nos nouveautés.
  
   
   ------------ a suivre ------------  
